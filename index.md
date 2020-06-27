@@ -7,5 +7,8 @@ Was ich mag ist: schönes Wetter, die Natur, Radfahren, Liebe, mein Haus, der Ga
 * linke Spur
 * Pulp Funtion
 * Tori Amos, Mando Diao, ...
+
 Byron Katie
 > Glaube nicht alles, was du denkst.
+
+<img src="http://vignette.wikia.nocookie.net/de.simpsons/images/6/65/Bart_Simpson.png/revision/latest/scale-to-width-down/340?cb=20171106184048"/>
