@@ -7,3 +7,5 @@ Was ich mag ist: schönes Wetter, die Natur, Radfahren, Liebe, mein Haus, der Ga
 * linke Spur
 * Pulp Funtion
 * Tori Amos, Mando Diao, ...
+Byron Katie
+> Glaube nicht alles, was du denkst.
